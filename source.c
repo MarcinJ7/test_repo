@@ -1,0 +1,9 @@
+Mam
+taki
+plik
+tutaj
+ale
+nie
+wiem
+po
+co
