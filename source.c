@@ -1,9 +1,9 @@
 Mam
-taki
+oto
 plik
-tutaj
-ale
+tamten
+wiec
 nie
 wiem
 po
-co
+co!
